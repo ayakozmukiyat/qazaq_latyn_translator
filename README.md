@@ -1,1 +1,0 @@
-# qazaq_latyn_translator
